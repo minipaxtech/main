@@ -1,2 +1,11 @@
-# main
-Minipax Tech
+# D⁴
+
+## DOKTRYNA
+**DETEKCJA → DESTRUKCJA → DECEPCJA**
+
+---
+
+## DOCTRINE
+**DETECTION → DESTRUCTION → DECEPTION**
+
+---
